@@ -1,0 +1,1 @@
+# StrukturData_Q1_2501010011_IGedeArisParatamaPutra
